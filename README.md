@@ -1,6 +1,6 @@
 # coinshiba.xyz
 
-hi everyone I'm lonely... https://discord.com/invite/cfEQXJwRq7
+[hi everyone I'm lonely...](https://discord.com/invite/cfEQXJwRq7)
 
 ### ShibaCoin not ShibaToken - you must be mining to get this coin
 
